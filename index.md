@@ -1,6 +1,7 @@
 ## Welcome to Declans Gallery, Home to some of the finest photo's ever taken
 
-You can find me on reddit as [u/DeclansGallery](https://www.reddit.com/user/DeclansGallery/)
+You can find me on reddit as [u/DeclansGallery](https://www.reddit.com/user/DeclansGallery/) and on Instagram as [declans_gallery](
+https://www.instagram.com/declans_gallery/)
 
 ### Stranded in Dublin - 2019
 

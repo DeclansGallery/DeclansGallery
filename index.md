@@ -3,9 +3,9 @@
 
 You can find me on [reddit](reddit.com/user/declansgallery) at u/DeclansGallery
 
-![1](i.redd.it/82z79p36wc741.jpg)
+![i.redd.it/82z79p36wc741.jpg](1)
 
-![2](i.redd.it/95fgxfndwc741.jpg)
+![2](1)
 
 ![3](i.redd.it/d3lzuulawc741.jpg)
 

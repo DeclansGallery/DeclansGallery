@@ -9,7 +9,7 @@ You can find me on reddit as [u/DeclansGallery](https://www.reddit.com/user/Decl
 
 ![3](https://b.thumbs.redditmedia.com/uPGroL7qJwFVjmmWWprxmNPjImggxT0mZzYzr9naJ4k.jpg)
 
-### Declans Pc 
+### Declans Computer 
 
 ![2](https://b.thumbs.redditmedia.com/lM9xYmwbyXxx0MfLCRBYRfj4_nJP7KY4BVXkMqJzZhU.jpg) 
 

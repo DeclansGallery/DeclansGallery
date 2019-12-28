@@ -1,7 +1,7 @@
 ## Welcome to Declans Gallery,
 ## Home to some of the finest photo's ever taken
 
-You can find me on [reddit](reddit.com/user/declansgallery) at u/DeclansGallery
+You can find me on [reddit](https://www.reddit.com/user/DeclansGallery/) at u/DeclansGallery
 
 ![1](https://b.thumbs.redditmedia.com/lM9xYmwbyXxx0MfLCRBYRfj4_nJP7KY4BVXkMqJzZhU.jpg)
 

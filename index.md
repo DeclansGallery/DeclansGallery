@@ -5,9 +5,9 @@ You can find me on [reddit](reddit.com/user/declansgallery) at u/DeclansGallery
 
 ![1](https://b.thumbs.redditmedia.com/lM9xYmwbyXxx0MfLCRBYRfj4_nJP7KY4BVXkMqJzZhU.jpg)
 
-![2](1)
+![2](https://a.thumbs.redditmedia.com/e8EyVnmT0A2CV2flXaY0b7UnCAWRSm8z4X5UAjI4t-0.jpg)
 
-![3](i.redd.it/d3lzuulawc741.jpg)
+![3](https://b.thumbs.redditmedia.com/uPGroL7qJwFVjmmWWprxmNPjImggxT0mZzYzr9naJ4k.jpg)
 
 ### Markdown
 

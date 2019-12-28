@@ -3,7 +3,7 @@
 
 You can find me on [reddit](reddit.com/user/declansgallery) at u/DeclansGallery
 
-![i.redd.it/82z79p36wc741.jpg](1)
+![https://i.redd.it/82z79p36wc741.jpg](1)
 
 ![2](1)
 

@@ -18,6 +18,8 @@ You can find me on reddit as [u/DeclansGallery](https://www.reddit.com/user/Decl
 
 ```markdown
 
+Bro that's dope - Declan 2019
+
 ```
 ### Details
 

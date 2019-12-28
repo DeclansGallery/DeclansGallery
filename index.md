@@ -1,8 +1,13 @@
-## Welcome to GitHub Pages
+## Welcome to Declans Gallery,
+## Home to some of the finest photo's ever taken
 
-You can use the [editor on GitHub](https://github.com/DeclansGallery/DeclansGallery/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+You can find me on [reddit](reddit.com/user/declansgallery) at u/DeclansGallery
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+![1](i.redd.it/82z79p36wc741.jpg)
+
+![2](i.redd.it/95fgxfndwc741.jpg)
+
+![3](i.redd.it/d3lzuulawc741.jpg)
 
 ### Markdown
 
@@ -28,9 +33,6 @@ Syntax highlighted code block
 
 For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
 
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/DeclansGallery/DeclansGallery/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
 
 ### Support or Contact
 
